@@ -1,2 +1,2 @@
 # Reopeningproject
-Evaluation of Public Perception on Reopening after COVID-19 
+Evaluation of Public Perception on Reopening amid COVID-19 
