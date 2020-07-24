@@ -1,2 +1,2 @@
 # Reopeningproject
-Evaluation of Public Perception on Reopening after COVID-19 
+Supporting or opposing reopening amid the COVID-19 pandemic? Anatomy into the battle on social media
